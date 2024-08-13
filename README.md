@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tuM898
 - 👀 I’m interested in a business development strategic,and analyzing CRM system.
 - 🌱 I’m currently learning : SEMrush, Goggle Analytics Ads. 
-- 💞️ I’m looking to collaborate on on marketing strategies plans or business development strategies for any projects. 
+- 💞️ I’m looking to collaborate on marketing strategies plans or business development strategies for any projects. 
 - 📫 How to reach me : tm.turkiah@gmail.com
 - https://www.linkedin.com/me?trk=p_mwlite_feed-secondary_nav
 - 😄 Pronouns: She .
